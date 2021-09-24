@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mili-writes
+- 👋 Hi, I’m **@mili-writes**
 - 👀 I’m interested in writing my story
 - 🌱 I’m currently learning in high school
 
